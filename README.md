@@ -14,3 +14,4 @@ Contributors:
 
 SlightlyCyborg 4:46 EST (Knoxville, TN) Sep 14, 2014 
 wturyn 22:58 CET (Warsaw, Poland) Sep 14, 2014
+njcanderson 8:59 EST (Columbia, SC) Sep 15, 2014
