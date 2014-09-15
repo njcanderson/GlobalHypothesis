@@ -11,4 +11,6 @@ Steve Jobs by Walter Isaacson
 
 
 Contributors:
+
 SlightlyCyborg 4:46 EST (Knoxville, TN) Sep 14, 2014 
+wturyn 22:58 CET (Warsaw, Poland) Sep 14, 2014
